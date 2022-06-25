@@ -1,0 +1,6 @@
+- Hi, I’m @ShotaZyy
+- My Age 16 Age
+- My Country Indonesian
+- I like coding or updating SC expired
+- My YouTube APLIVE, Don't Forget To subscribe ya
+- I love You All ♥️
